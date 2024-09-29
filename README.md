@@ -8,9 +8,9 @@
 
 ## My Interests and Hobbies
 ####  1. Longboarding
-          * I've been longboarding for around 4 years
-          * I mainly do downhill longboarding
-          * I enjoy it because I like the high speed thrills
+          *I've been longboarding for around 4 years
+          *I mainly do downhill longboarding
+          *I enjoy it because I like the high speed thrills
 ####  2. Tennis
           * I've been playing for around 3 years
           * I use to play for my school, I play independently now
@@ -21,4 +21,4 @@
           * Although its enjoyable alone, it's another joy with my friends
 
 ## Cool Websites :)
-## >Here are 2 of my favorite websites:
+## > Here are 2 of my favorite websites:
