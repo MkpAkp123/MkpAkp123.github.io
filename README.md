@@ -7,5 +7,18 @@
 # About Me
 
 ## My Interests and Hobbies
-#### 1. Longboarding
-  * ABC
+####  1. Longboarding
+          * I've been longboarding for around 4 years
+          * I mainly do downhill longboarding
+          * I enjoy it because I like the high speed thrills
+####  2. Tennis
+          * I've been playing for around 3 years
+          * I use to play for my school, I play independently now
+          * Won a regional tournament for our school
+####  3. Hiking
+          * My favorite location is the mountains in the Uttranchal state of India     
+          * I love the cool, crisp mountain air while hiking
+          * Although its enjoyable alone, it's another joy with my friends
+
+## Cool Websites :)
+## >Here are 2 of my favorite websites:
